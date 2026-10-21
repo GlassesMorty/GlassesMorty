@@ -36,7 +36,7 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
 
 
 <p align="center">
-<img src="https://tenor.com/view/waxwell-dw-dandys-world-gif-17670240629224868251" width="180" />
+<img src="https://media.tenor.com/9TlOOzifiZsAAAAM/waxwell-dw.gif" width="180" />
 <img src="YOUR_IMAGE_URL_2" width="180" />
 </p>
 
