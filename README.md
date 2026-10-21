@@ -1,9 +1,72 @@
-<img src="https://media.tenor.com/h_beDm9k2WkAAAAM/dandy%27s-world-waxwell.gif" alt="gif"> Hey, my name is Timmy/Waxwell.                             
-                               DNI
-Waxwell kins
-Darks/pros
-Zoos/pedos who are not actively trying to change
-homophobes, predators, racists, other basic DNI criteria stuff.
-Under 13/over 18 interact with care.
-<img width="500"  alt="waxandgoobdialogue" src="https://github.com/user-attachments/assets/5cf1fef3-f107-4c31-8fae-39453ac3cec6" />
+<p align="center">
+🕯️ .・゜゜・ WAXWELL'S INTRO!! 
+</p>
+<p align="center">
 
+<img width="400" alt="01bcc7d1" src="https://github.com/user-attachments/assets/5d47fb42-4002-4197-b72d-2d1d7ed0a045" />
+
+</p>
+
+<p align="center">
+🖤 𝘗𝘰𝘯𝘺𝘵𝘰𝘸𝘯s one and only WAXWELL!1!! (¬ᴗ ´¬ )
+</p>
+
+<p align="center">
+<img src="YOUR_SMALL_GIF_URL_HERE" width="150" />
+</p>
+"WHY IS EVERYBDY ALWAYZ PICKXN ON ME!!?!!?!?"
+
+ Who is this CHUD LOSERRR 🤣
+
+<p align="center">
+<img src="YOUR_WAXWELL_IMAGE_URL_HERE" width="220" />
+</p>
+Heyy, I'm Waxwell!!
+I use He/Him, They/Them or Dew/Dews pronouns mainly.
+I am currently 15 years old, under thirteen and over eighteen iwec pls
+#1 McCafferty fan no you can't prove me wrong
+c+h and int is always okay unless it is stated otherwise in my name!!
+
+
+<p align="center">
+<img src="YOUR_TINY_GIF_URL_HERE" width="100" />
+</p>
+
+Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
+
+
+<p align="center">
+<img src="YOUR_IMAGE_URL_1" width="180" />
+<img src="YOUR_IMAGE_URL_2" width="180" />
+</p>
+
+
+
+<p align="center">
+<img src="YOUR_REACTION_GIF_URL_HERE" width="250" />
+</p>
+
+
+<p align="center">
+<img src="YOUR_BLINKIE_URL_HERE" />
+<img src="YOUR_PIXEL_DECORATION_URL_HERE" />
+</p>
+
+📼 DNI (◣ _ ◢)
+Basic DNI criteria
+Pros/darks
+pedos/zoos/other paraphiles (not including non harmful paraphilias such as objectophilia)
+fictionkilled family
+
+<p align="center">
+<img src="YOUR_RANDOM_IMAGE_URL_HERE" width="200" />
+</p>
+
+<p align="center">
+🕯️ ───── ⋆⋅☆⋅⋆ ───── 🕯️
+</p>
+
+<p align="center">
+<!-- FOOTER PIXEL ART / STAMP -->
+<img src="YOUR_FOOTER_DECORATION_URL_HERE" />
+</p>
