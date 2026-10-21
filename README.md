@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-🖤 𝘗𝘰𝘯𝘺𝘵𝘰𝘸𝘯s one and only WAXWELL!1!! (¬ᴗ ´¬ )
+🖤 Ponytowns one and only WAXWELL!1!! (¬ᴗ ´¬ )
 </p>
 
 <p align="center">
@@ -36,14 +36,15 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
 
 
 <p align="center">
-<img src="YOUR_IMAGE_URL_1" width="180" />
+<img src="https://tenor.com/view/waxwell-dw-dandys-world-gif-17670240629224868251" width="180" />
 <img src="YOUR_IMAGE_URL_2" width="180" />
 </p>
 
 
 
 <p align="center">
-<img src="YOUR_REACTION_GIF_URL_HERE" width="250" />
+<img width="150" height="20" alt="hate" src="https://github.com/user-attachments/assets/57b67c59-1bc1-458d-a7d4-fd82755a88a2" />
+
 </p>
 
 
