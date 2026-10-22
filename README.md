@@ -58,7 +58,7 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
 📼 DNI (◣ _ ◢)
 Basic DNI criteria
 Pros/darks
-pedos/zoos/other paraphiles (not including non harmful paraphilias such as objectophilia)
+pedos/zoos/other paraphiles who aren't trying to heal (not including non harmful paraphilias such as objectophilia)
 fictionkilled family, other waxwell kins (ESPECIALLY fullfics or people who believe they were waxwell in a past life.)
 
 <p align="center">
