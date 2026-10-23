@@ -55,12 +55,27 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
 <img src="https://adriansblinkiecollection.neocities.org/stamps/g9.jpg" />
 </p>
 
-📼 DNI (◣ _ ◢)
-Basic DNI criteria
-Pros/darks
-pedos/zoos/other paraphiles who aren't trying to heal (not including non harmful paraphilias such as objectophilia)
-fictionkilled family, other waxwell kins (ESPECIALLY fullfics or people who believe they were waxwell in a past life.)
+<p align="center">
+<details>
+  <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
 
+  - Pros/darks (pls don't talk about your dark/proships with me)
+  - Waxwell kins (who just relate to him)
+</details>
+</p>
+
+<p align="center">
+<details>
+  <summary><strong>📼 DNI ( ◺˰◿ )</strong></summary>
+
+  - Rickorty shippers
+  - Waxwell kins (fullfics or people who believe they were him in a past life)
+  - Harmful paraphilias who aren't trying to change
+  - Basic DNI (Homophobics, racists, ableist, ect)
+  - Coalcarolynne haters
+  - Fictionkilled
+</details>
+</p>
 <p align="center">
 <img src="https://c.tenor.com/WgD8h5IGa6cAAAAC/tenor.gif" width="200" />
 </p>
