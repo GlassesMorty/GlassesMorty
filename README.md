@@ -59,7 +59,7 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
 <details>
   <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
 
-  - Pros/darks (pls don't talk about your dark/proships with me)
+  - Pros/darks (Keep talk about your pro/darkships to a minimum pls)
   - Waxwell kins (who just relate to him)
 </details>
 </p>
