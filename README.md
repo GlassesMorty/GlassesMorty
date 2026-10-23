@@ -73,7 +73,7 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
   - Coalcarolynne haters
-  - Fictionkilled
+  - Fictionkilled (unless I interact)
 </details>
 </p>
 <p align="center">
