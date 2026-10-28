@@ -1,3 +1,5 @@
+<img src="https://i.pinimg.com/736x/5b/9b/a2/5b9ba23f5e255788da9425cdcca99d63.jpg" width="800">
+<h5>not my art, credits in image!!!</h5>
 <p align="center">
 Hi hello I'm Timmy/Waxwell/Em/Morty!!
 </p>
