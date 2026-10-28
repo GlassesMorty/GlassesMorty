@@ -1,5 +1,5 @@
 <p align="center">
-🕯️ .・゜゜・ WAXWELL'S INTRO!! 
+</h1>🕯️ .・゜゜・ WAXWELL'S INTRO!! 
 </p>
 <p align="center">
 
@@ -72,8 +72,6 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
   - Waxwell kins (fullfics or people who believe they were him in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
-  - Coalcarolynne haters
-  - Fictionkilled (unless I interact)
 </details>
 </p>
 <p align="center">
@@ -81,9 +79,32 @@ Waxhugs goobwell cuddlyflame whatever you wanna call it is CANON
 </p>
 
 <p align="center">
-🕯️ ───── ⋆⋅☆⋅⋆ ───── 🕯️
+<details>
+  <summary><strong>◝(ᵔᗜᵔ)◜ Fictkin list (doubles DNI) </strong></summary>
+
+ 
+   - Waxwell
+   - Shrimpo
+   - Phillip Pirrup
+   - Damien Thorn
+   - Clyde Donovan
+   - Kyle Schwartz
+   - Paolo Paoletti
+   - Miami Morty (Miami Morty sexualizers HEAVY DNI)
+   - Evil Morty
+   - Tyler (Total Drama Island)
+   - Dr. Flug
+</details>
 </p>
 
 <p align="center">
-<img width="300" src="https://c.tenor.com/vq4RekgbXIUAAAAC/tenor.gif" />
+Gucci Morty is my boyfriend, okay?
+</p>
+<p align="center">
+I love him very much.
+</p>
+
+
+<p align="center">
+🕯️ ───── ⋆⋅☆⋅⋆ ───── 🕯️
 </p>
