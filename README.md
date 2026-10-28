@@ -24,11 +24,16 @@
 <p align="center">
 <img src="https://media.tenor.com/SvJ9czbPkHgAAAAM/dandy-world-waxwell-why-you-nevermind.gif" width="220" />
 </p>
-Heyy, I'm Waxwell!!
+Hi hello I'm Timmy/Waxwell/Em!!
+
 I use He/Him, They/Them or Dew/Dews pronouns mainly.
+
 I am currently 15 years old, under thirteen and over eighteen iwec pls
+
 #1 McCafferty fan no you can't prove me wrong
+
 c+h and int is always okay unless it is stated otherwise in my name!!
+
 
 
 <p align="center">
