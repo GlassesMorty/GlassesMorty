@@ -80,7 +80,7 @@ Gucci Morty is my boyfriend, okay?
 I love him very much.
 </p>
 
-[![Watch the video](https://www.youtube.com/watch?v=KBT_CpLaejI)]
+[![Demo](demo.gif)](https://www.youtube.com/watch?v=KBT_CpLaejI)
 <p align="center">
  ───── ⋆⋅☆⋅⋆ ───── 
 </p>
