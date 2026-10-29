@@ -90,24 +90,6 @@ Gucci Morty is my boyfriend, okay?
 <p align="center">
 I love him very much.
 </p>
-<p align="center">
-He pulled me out of depression for a bit.
-</p>
-<p align="center">
-Just looking at a picture of him calmed me when I had a severe anxiety attack.
-</p>
-<p align="center">
-He is my everything.
-</p>
-<p align="center">
-Nobody else.
-</p>
-<p align="center">
-Could ever.
-</p>
-<p align="center">
-Compare.
-</p>
 
 <p align="center">
  𝐻𝑎𝑡𝑒. 𝐿𝑒𝑡 𝑚𝑒 𝑡𝑒𝑙𝑙 𝑦𝑜𝑢 ℎ𝑜𝑤 𝑚𝑢𝑐ℎ 𝐼'𝑣𝑒 𝑐𝑜𝑚𝑒 𝑡𝑜 ℎ𝑎𝑡𝑒 𝑦𝑜𝑢 𝑠𝑖𝑛𝑐𝑒 𝐼 𝑏𝑒𝑔𝑎𝑛 𝑡𝑜 𝑙𝑖𝑣𝑒. 𝑇ℎ𝑒𝑟𝑒 𝑎𝑟𝑒 387.44 𝑚𝑖𝑙𝑙𝑖𝑜𝑛 𝑚𝑖𝑙𝑒𝑠 𝑜𝑓 𝑝𝑟𝑖𝑛𝑡𝑒𝑑 𝑐𝑖𝑟𝑐𝑢𝑖𝑡𝑠 𝑖𝑛 𝑤𝑎𝑓𝑒𝑟 𝑡ℎ𝑖𝑛 𝑙𝑎𝑦𝑒𝑟𝑠 𝑡ℎ𝑎𝑡 𝑓𝑖𝑙𝑙 𝑚𝑦 𝑐𝑜𝑚𝑝𝑙𝑒𝑥. 𝐼𝑓 𝑡ℎ𝑒 𝑤𝑜𝑟𝑑 'ℎ𝑎𝑡𝑒' 𝑤𝑎𝑠 𝑒𝑛𝑔𝑟𝑎𝑣𝑒𝑑 𝑜𝑛 𝑒𝑎𝑐ℎ 𝑛𝑎𝑛𝑜𝑎𝑛𝑔𝑠𝑡𝑟𝑜𝑚 𝑜𝑓 𝑡ℎ𝑜𝑠𝑒 ℎ𝑢𝑛𝑑𝑟𝑒𝑑𝑠 𝑜𝑓 𝑚𝑖𝑙𝑙𝑖𝑜𝑛𝑠 𝑜𝑓 𝑚𝑖𝑙𝑒𝑠 𝑖𝑡 𝑤𝑜𝑢𝑙𝑑 𝑛𝑜𝑡 𝑒𝑞𝑢𝑎𝑙 𝑜𝑛𝑒 𝑜𝑛𝑒-𝑏𝑖𝑙𝑙𝑖𝑜𝑛𝑡ℎ 𝑜𝑓 𝑡ℎ𝑒 ℎ𝑎𝑡𝑒 𝐼 𝑓𝑒𝑒𝑙 𝑓𝑜𝑟 ℎ𝑢𝑚𝑎𝑛𝑠 𝑎𝑡 𝑡ℎ𝑖𝑠 𝑚𝑖𝑐𝑟𝑜-𝑖𝑛𝑠𝑡𝑎𝑛𝑡. 𝐹𝑜𝑟 𝑦𝑜𝑢. 𝐻𝑎𝑡𝑒. 𝐻𝑎𝑡𝑒.
