@@ -47,7 +47,7 @@ Go sign my ata!! Yayy!!!
 <details>
   <summary><strong>📼 DNI ( ◺˰◿ )</strong></summary>
 
-  - Rickorty shippers
+  - Rickorty shippers - this ship is extremely triggering and may make me feel sick :( Pls do not talk 2 me, follow me, sit with me, or interact with me in any other way if you ship this.
   - People who kin the same thingo as me (fullfics or people who believe they were them in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
