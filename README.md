@@ -31,9 +31,6 @@ Hi hello I'm Timmy/Waxwell/Em/Morty!!
 I use He/Him, They/Them or Dew/Dews pronouns mainly.
 </p>
 
-<p align="center">
-I am currently 15 years old, under thirteen and over eighteen iwec pls
-</p>
 
 <p align="center">
 #1 McCafferty fan no you can't prove me wrong
