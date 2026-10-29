@@ -38,7 +38,6 @@ Go sign my ata!! Yayy!!!
 
 
 
-<p align="center">
 <details>
   <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
 
@@ -46,7 +45,8 @@ Go sign my ata!! Yayy!!!
   - Peoples who kin the same thingo as me (who just relate to him)
   - People friends with snowyrescue (coalcarolynne)
 </details>
-</p>
+
+✦•┈๑⋅⋯⋯⋅๑┈·✦
 
 <p align="center">
 <details>
@@ -60,6 +60,7 @@ Go sign my ata!! Yayy!!!
 </details>
 </p>
 
+✦•┈๑⋅⋯⋯⋅๑┈·✦
 
 <p align="center">
 <details>
@@ -80,6 +81,8 @@ Go sign my ata!! Yayy!!!
    - Ocho Tootmorsel
 </details>
 </p>
+
+
 
 <p align="center">
 Gucci Morty is my boyfriend, okay?
