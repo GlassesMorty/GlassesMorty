@@ -38,7 +38,8 @@ Go sign my ata!! Yayy!!!
   <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
 
   - Pros/darks (Keep talk about your pro/darkships to a minimum pls)
-  - Waxwell kins (who just relate to him)
+  - Peoples who kin the same thingo as me (who just relate to him)
+  - People friends with snowyrescue (coalcarolynne)
 </details>
 </p>
 
@@ -47,7 +48,7 @@ Go sign my ata!! Yayy!!!
   <summary><strong>📼 DNI ( ◺˰◿ )</strong></summary>
 
   - Rickorty shippers
-  - Waxwell kins (fullfics or people who believe they were him in a past life)
+  - People who kin the same thingo as me (fullfics or people who believe they were them in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
 </details>
