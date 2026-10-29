@@ -64,7 +64,7 @@ Go sign my ata!! Yayy!!!
 
 <p align="center">
 <details>
-  <summary><strong>◝(ᵔᗜᵔ)◜ Fictkin list (doubles DNI) </strong></summary>
+  <summary><strong>◝(ᵔᗜᵔ)◜ Fictkin list </strong></summary>
 
  
    - Waxwell
