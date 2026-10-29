@@ -42,7 +42,7 @@ Go sign my ata!! Yayy!!!
 
 
 
-
+<div align="center">
 <details>
   <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
 
@@ -50,10 +50,13 @@ Go sign my ata!! Yayy!!!
   - Peoples who kin the same thingo as me (who just relate to him)
   - People friends with snowyrescue (coalcarolynne)
 </details>
-
-✦•┈๑⋅⋯⋯⋅๑┈·✦
+</div>
 
 <p align="center">
+✦•┈๑⋅⋯⋯⋅๑┈·✦
+</p>
+
+<div align="center">
 <details>
   <summary><strong>📼 DNI ( ◺˰◿ )</strong></summary>
 
@@ -63,11 +66,13 @@ Go sign my ata!! Yayy!!!
   - Basic DNI (Homophobics, racists, ableist, ect)
   - Miami Morty sexualizrs :/ 
 </details>
-</p>
-
-✦•┈๑⋅⋯⋯⋅๑┈·✦
+</div>
 
 <p align="center">
+✦•┈๑⋅⋯⋯⋅๑┈·✦
+</p>
+
+<div align="center">
 <details>
   <summary><strong>◝(ᵔᗜᵔ)◜ Fictkin list </strong></summary>
 
@@ -85,7 +90,7 @@ Go sign my ata!! Yayy!!!
    - Dr. Flug
    - Ocho Tootmorsel
 </details>
-</p>
+</div>
 
 
 
