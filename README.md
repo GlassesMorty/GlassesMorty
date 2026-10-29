@@ -51,6 +51,7 @@ Go sign my ata!! Yayy!!!
   - People who kin the same thingo as me (fullfics or people who believe they were them in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
+  - Miami Morty sexualizrs :/ 
 </details>
 </p>
 
