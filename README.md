@@ -6,7 +6,7 @@
   <img
     alt="Hits"
     src="https://hits.sh/github.com/PringlesMorty.svg?style=plastic&label=Pringles%20cans%20bought&color=8b9c6a&labelColor=ff5d03&logo=pringles%20morty"
-    width="400"
+    width="200"
   />
 </a>
 </p>
