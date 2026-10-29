@@ -2,9 +2,14 @@
 <h5>not my art, credits in image!!!</h5>
 
 <p align="center">
-  <a width="800" href="https://hits.sh/github.com/PringlesMorty/"><img alt="Hits" src="https://hits.sh/github.com/PringlesMorty.svg?style=plastic&label=Pringles%20cans%20bought&color=8b9c6a&labelColor=ff5d03&logo=pringles%20morty"/></a>
+ <a href="https://hits.sh/github.com/PringlesMorty/">
+  <img
+    alt="Hits"
+    src="https://hits.sh/github.com/PringlesMorty.svg?style=plastic&label=Pringles%20cans%20bought&color=8b9c6a&labelColor=ff5d03&logo=pringles%20morty"
+    width="400"
+  />
+</a>
 </p>
-
 <p align="center">
 Hi hello I'm Timmy/Waxwell/Em/Morty!!
 </p>
