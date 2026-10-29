@@ -1,3 +1,16 @@
+
+<div align="center">
+  <h1>
+    𝐵𝑢𝑡 𝑦𝑜𝑢𝑟 𝑠𝑒𝑐𝑟𝑒𝑡𝑠 𝑠𝑎𝑓𝑒 𝑤𝑖𝑡ℎ 𝑚𝑒,
+  </h1>
+</div>
+
+<div align="center">
+  <h1>
+    𝑏𝑒𝑐𝑎𝑢𝑠𝑒 𝐼 𝑑𝑜𝑛'𝑡 𝑡ℎ𝑖𝑛𝑘 𝑡ℎ𝑎𝑡 𝑡ℎ𝑒𝑦 𝑚𝑎𝑡𝑡𝑒𝑟.
+  </h1>
+</div>
+
 <img src="https://i.pinimg.com/736x/5b/9b/a2/5b9ba23f5e255788da9425cdcca99d63.jpg" width="800">
 <h5>not my art, credits in image!!!</h5>
 
