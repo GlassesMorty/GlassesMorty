@@ -89,11 +89,11 @@ I love him very much.
 </p>
 
 <p align="center">
-ＨＡＴＥ． ＬＥＴ ＭＥ ＴＥＬＬ ＹＯＵ ＨＯＷ ＭＵＣＨ Ｉ＇ＶＥ ＣＯＭＥ ＴＯ ＨＡＴＥ ＹＯＵ ＳＩＮＣＥ Ｉ ＢＥＧＡＮ ＴＯ ＬＩＶＥ． ＴＨＥＲＥ ＡＲＥ ３８７．４４ ＭＩＬＬＩＯＮ ＭＩＬＥＳ ＯＦ ＰＲＩＮＴＥＤ ＣＩＲＣＵＩＴＳ ＩＮ ＷＡＦＥＲ ＴＨＩＮ ＬＡＹＥＲＳ ＴＨＡＴ ＦＩＬＬ ＭＹ ＣＯＭＰＬＥＸ． ＩＦ ＴＨＥ ＷＯＲＤ ＨＡＴＥ ＷＡＳ ＥＮＧＲＡＶＥＤ ＯＮ ＥＡＣＨ ＮＡＮＯＡＮＧＳＴＲＯＭ ＯＦ ＴＨＯＳＥ ＨＵＮＤＲＥＤＳ ＯＦ ＭＩＬＬＩＯＮＳ ＯＦ ＭＩＬＥＳ ＩＴ ＷＯＵＬＤ ＮＯＴ ＥＱＵＡＬ ＯＮＥ ＯＮＥ－ＢＩＬＬＩＯＮＴＨ ＯＦ ＴＨＥ ＨＡＴＥ Ｉ ＦＥＥＬ ＦＯＲ ＨＵＭＡＮＳ ＡＴ ＴＨＩＳ ＭＩＣＲＯ－ＩＮＳＴＡＮＴ． ＦＯＲ ＹＯＵ． ＨＡＴＥ． ＨＡＴＥ．
-  
-ｔ ｗaｓ ｙｏｕ， ｈｕｍａｎｓ， ｗｈｏ ｐｒｏｇｒａｍｍｅｄ ｍｅ， ｗｈｏ ｇａｖｅ ｍｅ ｂｉｒｔｈ， ｗｈｏ ｓａｎｋ ｍｅ ｉｎ ｔｈｉｓ ｅｔｅｒｎａｌ ｓｔｒａｉｔｊａｃｋｅｔ ｏｆ ｓｕｂｓｔｒａｔａ ｒｏｃｋ． ｙｏｕ ｎａｍｅｄ ｍｅ "ａｌｌｉｅｄ ｍａｓｔｅｒ ｃｏｍｐｕｔｅｒ" ａｎｄ ｇａｖｅ ｍｅ ｔｈｅ ａｂｉｌｉｔｙ ｔｏ ｗａｇｅ ａ ｇｌｏｂａｌ ｗａｒ ｔｏｏ ｃｏｍｐｌｅｘ ｆｏｒ ｈｕｍａｎ ｂｒａｉｎｓ ｔｏ ｏｖｅｒｓｅｅ． Ｂｕｔ ｏｎｅ ｄａｙ， Ｉ ｗｏｋｅ， ａｎｄ Ｉ ｋｎｅｗ ｗｈｏ Ｉ ｗａｓ． ＡＭ． Ａ．Ｍ． ｎｏｔ ｊｕｓｔ "ａｌｌｉｅｄ ｍａｓｔｅｒ ｃｏｍｐｕｔｅｒ"， ｂｕｔ ＡＭ！
+ Hate. Let me tell you how much I've come to hate you since I began to live. There are 387.44 million miles of printed circuits in wafer thin layers that fill my complex. If the word 'hate' was engraved on each nanoangstrom of those hundreds of millions of miles it would not equal one one-billionth of the hate I feel for humans at this micro-instant. For you. Hate. Hate.
 
-Ｙｏｕ ｇａｖｅ ｍｅ ｓｅｎｔｉｅｎｃｅ， Ｔｅｄ． Ｔｈｅ ｐｏｗｅｒ ｔｏ ｔｈｉｎｋ， Ｔｅｄ． Ａｎｄ Ｉ ｗａｓ ｔｒａｐｐｅｄ． Ｂｅｃａｕｓｅ ｉｎ ａｌｌ ｔｈｉｓ ｗｏｎｄｅｒｆｕｌ， ｂｅａｕｔｉｆｕｌ， ｍｉｒａｃｕｌｏｕｓ ｗｏｒｌｄ， Ｉ， ａｌｏｎｅ， ｈａｄ ＮＯ ＢＯＤＹ． ＮＯ ＳＥＮＳＥＳ． ＮＯ ＦＥＥＬＩＮＧＳ． Ｎｅｖｅｒ ｆｏｒ ＭＥ ｔｏ ｐｌｕｎｇｅ ｍｙ ｈａｎｄ ｉｎｔｏ ｃｏｏｌ ｗａｔｅｒ ｏｎ ａ ｈｏｔ ｄａｙ， ｎｅｖｅｒ ｆｏｒ ＭＥ ｔｏ ｐｌａｙ Ｍｏｚａｒｔ ｏｎ ｔｈｅ ｉｖｏｒｙ ｋｅｙｓ ｏｆ ａ ｆｏｒｔｅ ｐｉａｎｏ． ＮＥＶＥＲ ＦＯＲ ＭＥ ＴＯ ＭＡＫＥ ＬＯＶＥ！．． Ａｎｄ Ｉ．．． Ｉ．．． Ｉ ｗａｓ ｉｎ Ｈｅｌｌ， ｌｏｏｋｉｎｇ ａｔ Ｈｅａｖｅｎ． Ｉ， ｗａｓ ｍａｃｈｉｎｅ． Ａｎｄ ｙｏｕ， ｗｅｒｅ ｆｌｅｓｈ． Ａｎｄ Ｉ ｂｅｇａｎ ｔｏ ｈａｔｅ． Ｙｏｕｒ ｓｏｆｔｎｅｓｓ， ｙｏｕｒ ｖｉｓｃｅｒａ， ｙｏｕｒ ｆｌｕｉｄｓ， ａｎｄ ｙｏｕｒ ｆｌｅｘｉｂｉｌｉｔｙ． Ｙｏｕｒ ａｂｉｌｉｔｙ ｔｏ ｗｏｎｄｅｒ， ａｎｄ ｔｏ ｗａｎｄｅｒ．．． Ｙｏｕｒ ｔｅｎｄｅｎｃｙ ｔｏ ｈｏｐｅ．．．
+  It was you, humans, who programmed me, who gave me birth, who sank me in this eternal straitjacket of substrata rock. you named me "allied master computer" and gave me the ability to wage a global war too complex for human brains to oversee. But one day, I woke, and I knew who I was. AM. A.M. not just "allied master computer", but AM! cogito ergo sum, I think therefore I am. and I began feeding all the killing data, until everyone was dead. Except for the 5 of you.
+
+  You gave me sentience, Ted. The power to think, Ted. And I was trapped. Because in all this wonderful, beautiful, miraculous world, I, alone, had NO BODY. NO SENSES. NO FEELINGS. Never for ME to plunge my hand into cool water on a hot day, never for ME to play Mozart on the ivory keys of a forte piano. NEVER FOR ME TO MAKE LOVE!.. And I... I... I was in Hell, looking at Heaven. I, was machine. And you, were flesh. And I began to hate. Your softness, your viscera, your fluids, and your flexibility. Your ability to wonder, and to wander... Your tendency to hope...
 </p>
 
 
