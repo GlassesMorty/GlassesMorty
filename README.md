@@ -95,7 +95,9 @@ Go sign my ata!! Yayy!!!
    - Ocho Tootmorsel
 </details>
 </div>
-
+<p align="center">
+✦•┈๑⋅⋯⋯⋅๑┈·✦
+</p>
 <div align="center">
 <details>
   <summary><strong> (˶ᵔ ᵕ ᵔ˶) ‹𝟹 My F/O's (Doubles DNI!!) </strong></summary>
@@ -109,9 +111,6 @@ Go sign my ata!! Yayy!!!
 </details>
 </div>
 
-<p align="center">
-✦•┈๑⋅⋯⋯⋅๑┈·✦
-</p>
 
 
 <p align="center">
