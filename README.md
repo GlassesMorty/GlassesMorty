@@ -124,3 +124,8 @@ I love him very much.
 <p align="center">
  ───── ⋆⋅☆⋅⋆ ───── 
 </p>
+
+<p align="left"><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/07c1c4dd-7843-464e-b78a-b455077f2548" /></p><p align="center"><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/2a8f1be8-7521-426c-b9c9-d01868ff311a" /></p><p align="right"><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/1e3242ec-006d-44eb-95f5-7e6d04ba7098" /></p>
+
+
+
