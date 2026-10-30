@@ -47,7 +47,7 @@ Go sign my ata!! Yayy!!!
 <details>
   <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
 
-  - Pros/darks : Keep talk about your pro/darkships to a minimum pls, I am a darkshipper myself who ships very little proships for the sole reason of coping with things I would not like 2 discuss, but some proships can make me uncomfy :3
+  - Pros/darks : Keep talk about your pro/darkships to a minimum pls, I am a darkshipper myself who ships very little darkships for the sole reason of coping with things I would not like 2 discuss, but some darkships can make me uncomfy :3
   - Peoples who kin the same thingo as me (who just relate to him)
   - People friends with snowyrescue (coalcarolynne)
 </details>
@@ -61,7 +61,7 @@ Go sign my ata!! Yayy!!!
 <details>
   <summary><strong>📼 DNI ( ◺˰◿ )</strong></summary>
 
-  - Rickorty shippers - this ship is extremely triggering and may make me feel sick :( Pls do not talk 2 me, follow me, sit with me, or interact with me in any other way if you ship this.
+  - ANY sort of incest/pedophilic ship in Rick and Morty. It is extremely triggering, do not and I mean do NOT talk 2 me if you ship anything such as Rickorty, Sumorty, etc.
   - People who kin the same thingo as me (fullfics or people who believe they were them in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
