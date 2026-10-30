@@ -2,7 +2,7 @@
 <p align="center"><img width="405" height="571" alt="Why CHYLE is the BEST South Park ship EVER (9)" src="https://github.com/user-attachments/assets/cc07b66a-6e11-43dc-8fcd-0b5d81037ca5" /></p>
 
 <div align="center">
-<h5>Ily Morty</h5>
+<h5>Ily Slick Morty</h5>
  </div>
 
 <p align="center">
