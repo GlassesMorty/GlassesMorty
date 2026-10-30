@@ -74,7 +74,9 @@ Go sign my ata!! Yayy!!!
   - People who kin the same thingo as me (fullfics or people who believe they were them in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
-  - Miami Morty sexualizrs :/ 
+  - Miami Morty sexualizrs :/
+  - People who try to tell me I wasn't a fictional character in my past life
+  - Anti yumeship (Any yumeshippers reading this, u are CANON dude!!)
 </details>
 </div>
 
