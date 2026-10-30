@@ -100,6 +100,8 @@ Go sign my ata!! Yayy!!!
 <details>
   <summary><strong> (˶ᵔ ᵕ ᵔ˶) ‹𝟹 My F/O's (Doubles DNI!!) </strong></summary>
  
+18:48[low buget c-3po] they yume w/ 4 mortys ofc their kinda weird
+
    - Morty Prime
    - Gucci Morty
    - Slick Morty
