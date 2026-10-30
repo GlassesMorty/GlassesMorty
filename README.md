@@ -1,6 +1,9 @@
 
-<img src="https://i.pinimg.com/736x/5b/9b/a2/5b9ba23f5e255788da9425cdcca99d63.jpg" width="800">
-<h5>not my art, credits in image!!!</h5>
+<p align="center"><img width="405" height="571" alt="Why CHYLE is the BEST South Park ship EVER (9)" src="https://github.com/user-attachments/assets/cc07b66a-6e11-43dc-8fcd-0b5d81037ca5" /></p>
+
+<div align="center">
+<h5>Ily Morty</h5>
+ </div>
 
 <p align="center">
  <a href="https://hits.sh/github.com/PringlesMorty/">
@@ -124,7 +127,13 @@ I love my f/o's very much!!
   ───── ⋆⋅☆⋅⋆ ───── 
 </p>
 
-<p align="left"><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/07c1c4dd-7843-464e-b78a-b455077f2548" /></p><p align="center"><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/2a8f1be8-7521-426c-b9c9-d01868ff311a" /></p><p align="right"><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/1e3242ec-006d-44eb-95f5-7e6d04ba7098" /></p>
+<p align="center"><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/07c1c4dd-7843-464e-b78a-b455077f2548" /><img width="125" height="162" alt="image" src="https://github.com/user-attachments/assets/e16994ea-61af-40b3-ad97-72b8673b499d" /></p>
+<div align="center">
+<h5>Me and u forever <3</h5>
+</div>
+
+
+
 
 
 
