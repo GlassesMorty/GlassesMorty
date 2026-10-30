@@ -89,6 +89,7 @@ Go sign my ata!! Yayy!!!
    - Paolo Paoletti
    - Miami Morty (Miami Morty sexualizers HEAVY DNI)
    - Evil Morty
+   - Glasses Morty
    - Tyler (Total Drama Island)
    - Dr. Flug
    - Ocho Tootmorsel
