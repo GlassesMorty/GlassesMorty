@@ -37,7 +37,7 @@ Go sign my ata!! Yayy!!!
 </p>
 
 
-<p align="center"><img width="656" height="656" alt="Why CHYLE is the BEST South Park ship EVER (10)" src="https://github.com/user-attachments/assets/770b2669-b269-4462-80b1-909d1c9d59a3" /></p>
+<p align="center"><img width="200" alt=ig" src="https://github.com/user-attachments/assets/770b2669-b269-4462-80b1-909d1c9d59a3" /></p>
 
 
 
