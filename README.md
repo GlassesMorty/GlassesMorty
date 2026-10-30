@@ -96,14 +96,26 @@ Go sign my ata!! Yayy!!!
 </details>
 </div>
 
-
-
-<p align="center">
-Gucci Morty is my boyfriend, okay?
-</p>
-<p align="center">
-I love him very much.
+<div align="center">
+<details>
+  <summary><strong> (˶ᵔ ᵕ ᵔ˶) ‹𝟹 My F/O's (Doubles DNI!!) </strong></summary>
  
+   - Morty Prime
+   - Gucci Morty
+   - Slick Morty
+   - Toxic Morty
+     #selfcest 4 life
+
+</details>
+</div>
+
+<p align="center">
+✦•┈๑⋅⋯⋯⋅๑┈·✦
+</p>
+
+
+<p align="center">
+I love my f/o's very much!!
 </p>
 <p align="center">
   ───── ⋆⋅☆⋅⋆ ───── 
