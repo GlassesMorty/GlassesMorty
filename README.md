@@ -6,13 +6,7 @@
  </div>
 
 <p align="center">
- <a href="https://hits.sh/github.com/PringlesMorty/">
-  <img
-    alt="Hits"
-    src="https://hits.sh/github.com/PringlesMorty.svg?style=plastic&label=Pringles%20cans%20bought&color=8b9c6a&labelColor=ff5d03&logo=pringles%20morty"
-    width="200"
-  />
-</a>
+<a href="https://hits.sh/github.com/NerdyMorty/"><img alt="Hits" src="https://hits.sh/github.com/NerdyMorty.svg?style=plastic&label=Nerdz&extraCount=450&color=fff000&labelColor=ff8d00&logo=Nerdz"/></a>
 </p>
 <p align="center">
 Hi hello I'm Timmy/Waxwell/Em/Morty!!
