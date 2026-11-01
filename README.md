@@ -59,7 +59,7 @@ Go sign my ata!! Yayy!!!
 <details>
   <summary><strong>📼 DNI ( ◺˰◿ )</strong></summary>
 
-  - ANY sort of incest/pedophilic ship in Rick and Morty. It is extremely triggering, do not and I mean do NOT talk 2 me if you ship anything such as Rickorty, Sumorty, etc.
+  - Rickorty shippers. Cough,,, triggering asf,,, cough,,, kin memories,,, cough,,,,
   - People who kin the same thingo as me (fullfics or people who believe they were them in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
