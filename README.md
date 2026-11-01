@@ -109,9 +109,11 @@ Go sign my ata!! Yayy!!!
    - Kevin Spencer
    - Flapjack
    - Salad Fingers
+   - Chase Chadwick
 
 
       #selfcest 4 life
+      i age up characters cry about it bro
 
 </details>
 </div>
