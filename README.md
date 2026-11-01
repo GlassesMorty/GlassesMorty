@@ -44,7 +44,7 @@ Go sign my ata!! Yayy!!!
 <div align="center">
 <details>
   <summary><strong>📼 IWC (,,•᷄﹏‎•᷅,,)</strong></summary>
-
+  - Rickorty shippers. Cough,,, triggering asf,,, cough,,, kin memories,,, cough,,,,
   - Pros/darks : Keep talk about your pro/darkships to a minimum pls, I am a darkshipper myself who ships very little darkships for the sole reason of coping with things I would not like 2 discuss, but some darkships can make me uncomfy :3 I also don't talk about my darkships unless specifically asked to do so ^_^
   - Peoples who kin the same thingo as me (who just relate to them)
   - People friends with snowyrescue (coalcarolynne)
@@ -59,7 +59,6 @@ Go sign my ata!! Yayy!!!
 <details>
   <summary><strong>📼 DNI ( ◺˰◿ )</strong></summary>
 
-  - Rickorty shippers. Cough,,, triggering asf,,, cough,,, kin memories,,, cough,,,,
   - People who kin the same thingo as me (fullfics or people who believe they were them in a past life)
   - Harmful paraphilias who aren't trying to change
   - Basic DNI (Homophobics, racists, ableist, ect)
